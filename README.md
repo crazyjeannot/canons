@@ -1,0 +1,2 @@
+# canons
+measuring literary value
